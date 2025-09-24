@@ -13,8 +13,8 @@ Aqui compartilho meus estudos, projetos e aprendizados.
 </p>
 
 ## 💌 Onde me encontrar
-- 📧 Email: seuemail@exemplo.com  
-- 🌷 Instagram: [@seuuser](#)  
+- 📧 Email: isabele.firmino@aluno.senai.br  
+- 🌷 Instagram: [is4gonzales](#)  
 
 ---
 
