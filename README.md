@@ -20,4 +20,4 @@ Aqui compartilho meus estudos, projetos e aprendizados.
 
 ✨ Obrigada por visitar meu perfil!
 ---
-![Logo](download (4).jpg)
+![Logo](https://i.pinimg.com/736x/6f/fa/48/6ffa48fd1827712d51df8fde480667f3.jpg)
