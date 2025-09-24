@@ -20,5 +20,5 @@ Aqui compartilho meus estudos, projetos e aprendizados.
 
 ✨ Obrigada por visitar meu perfil!
 ---
-# 💭Status:
+# 💭Status
   <img src="https://i.pinimg.com/736x/f2/6d/53/f26d53283e65e66dcecd86f59c5ba9d2.jpg" width="500px"/>
