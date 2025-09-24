@@ -1,4 +1,4 @@
-# 🌸 Olá, eu sou a Isa GF
+# 🌸 Oii, sou a Isa
 
 Bem-vindo ao meu cantinho no GitHub ✨  
 Aqui compartilho meus estudos, projetos e aprendizados.  
